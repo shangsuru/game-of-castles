@@ -1,2 +1,2 @@
-# Game of Thrones
+# Game of Castles
 
